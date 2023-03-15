@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Sebastián 👋
 
 - 🔭 I’m currently working at GenuineBee as a Junior Analyst
 - 🌱 I’m currently studying at ORT University
